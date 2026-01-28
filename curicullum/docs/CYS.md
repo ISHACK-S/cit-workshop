@@ -15,6 +15,5 @@
 * Basic Electrical And Electronics Engineering
 * Engineering Graphics
 * Programming In C
-# 3RD Year:
-##
-*
+# 3RD Semester:
+# We Are Too Underpaid To Add Anymore. Pls Send Money
